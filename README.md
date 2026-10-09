@@ -1,0 +1,2 @@
+# premium-lost-wax-jewel-001-lost-wax-jewelry-casting-plann
+Stop losing your castings to chaos. The Lost Wax Jewelry Casting Planner turns your messy process into a repeatable, profitable system.  This Notion template eliminates scattered notes and forgotten steps by centralizing every phase of lost wax casting—from wax carving to final polish. It’s the only planner built specifically for jewelers who want
